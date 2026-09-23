@@ -1,6 +1,6 @@
 # Areej Fatima
 
-**AI Engineer — Visual Perception & Intelligent Systems**
+**AI Engineer — Visual Perception & Intelligent Systems**  
 Lahore, Pakistan
 
 ---
